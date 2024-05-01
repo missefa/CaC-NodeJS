@@ -12,4 +12,3 @@ Coordinador pedagógico del curso:
 Matias Seminara
 Coordinador General del Programa:
 Ramiro Escalante Leiva
-https://www.linkedin.com/in/ramiroescalanteleiva
